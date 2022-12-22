@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @norizou3
+- 🌱 I’m currently learning programing.
